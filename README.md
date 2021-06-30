@@ -1,4 +1,4 @@
-# JamesJohnson Portfolio
+# James Johnson Portfolio
 
 ## INTRODUCTION
 
